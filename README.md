@@ -1,6 +1,6 @@
 **Privacy Policy**
 
-Simpel development built the Antrian Online RSUD Lamaddukelleng app as a Free app. This SERVICE is provided by Ryan Achmad at no cost and is intended for use as is.
+Simpel development built the Antrian Online RSUD Lamaddukelleng app as a Free app. This SERVICE is provided by Simpel Development at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
